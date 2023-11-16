@@ -1,0 +1,12 @@
+## Tautan Tugas Berita Bahasa Indonesia
+- https://www.youtube.com/shorts/Q7trl-OysYY
+- https://www.youtube.com/shorts/c5tWYj_Y60w
+- https://www.youtube.com/watch?v=XY3t80-vCJY
+- https://www.pexels.com/video/a-child-covering-his-face-8411074/
+- https://www.pexels.com/video/aircraft-and-land-vehicles-ready-for-combat-1635382/
+- https://www.youtube.com/watch?v=V48ZrQ-1OHs
+- https://www.youtube.com/watch?v=bOCx-YlI8s0
+- https://www.youtube.com/watch?v=HSbnniboAXo
+- https://www.youtube.com/watch?v=wKK2fBF5EkI
+- https://www.youtube.com/watch?v=8LVb9eomksY
+- https://www.youtube.com/watch?v=zLxHBRPLzow
